@@ -45,7 +45,7 @@ I'm a dedicated computer science student with a passion for technology and probl
 Feel free to explore my repositories and don't hesitate to reach out if you'd like to collaborate on interesting projects or discuss technology!
 
 * 📧 **Email:** [Yuvraj Yogendra Tiwari](mailto:yuvrajtiwari1978@gmail.com)
-* 📱 **Phone no.:** +91-9321462802
+* 📱 **Phone no.:** [Contact Me](+91-9321462802)
 * 💼 **LinkedIn:** [Yuvraj Yogendra Tiwari](https://www.linkedin.com/in/yuvraj-yogendra-tiwari)
 
 📍 Based in Mumbai, India
